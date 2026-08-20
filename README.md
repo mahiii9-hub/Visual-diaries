@@ -6,7 +6,7 @@
 
 ### 🎨 Featured Projects
 
-* **Sapera Company**
+* **Savora (Brand Concept)**
   * Complete brand identity and logo design.
   * Visual assets and creative concepts.
 
